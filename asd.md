@@ -1,1 +1,1 @@
-https://download1526.mediafire.com/fmsf2zziwvegP1daSR7O6H0QQcbwAbz3XttDFq-AmTjnmky7FR5AB3giFKNLjTp45xBAtcEBx6wEiZW-94wxeM-KXADybLrUwD1Bh2nsoePRGXcFfsIn1S6P6SiCtkH6SF48x5bx9n1NLq_uT-RtHKSlagK-1ixipbv39XZhKm_l_bA/fslpczjht5qfhjk/%C4%B0njector+craftrise.exe
+https://www.dosya.tc/en2.php?a=server/1uyp7k/Injector_craftrise.exe&b=bd3765b6de29d2b75deae179d8db71a3&c=1729431042
