@@ -1,1 +1,1 @@
-https://server11.dosya.co/cgi-bin/azcl9.cgi/gpqfvtva4gevmn5sbo7eewj2gqayqa6735wkp2ks74/mete.jar
+https://download1587.mediafire.com/aef3ds3l9tcg_7kqPBnmBLEWyDD5ToG-2g74b-uy8p_ntTqEqhOyfUTquCAeW4omyBTQblinZSOKY7ZYpD6I36XzKyJPr50QwYhU2sRgnsKczpHvBlGqaV7tGDwigftNg9cN0HHseGpXNTw1ObDiSOynpGG9uOAraPyJqyKkiHRh_w/6l1w7gvbn1vsdcp/mete.jar
